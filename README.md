@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @schroeder-emily
-- 👀 I’m interested in kickboxing, web development, and food
+- 👀 I’m interested in Muay Thai, web development, and food
 - 🌱 I’m currently learning three full stacks of web development
 - 💞️ I’m looking to collaborate on - nothing yet!
 - 📫 How to reach me emily.ann.schroeder@gmail.com
